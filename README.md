@@ -1,1 +1,1 @@
-# TurkcellGelece-iYazanlar
+# TurkcellGeleceğiYazanlar
